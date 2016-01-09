@@ -12,7 +12,7 @@ Pro mě osobně to bylo hodně zásadní uvědomění, protože jsem vždycky m�
 
 Toho opětovné napojení na své vnitřní Já pro mě i nějakým způsobem reprezentuje jistý krok k větší dospělosti. Zdaleka ale není vyhráno, protože roky žití v nepřirozenosti jen tak nezmizí, je to součást chování, osobnosti.
 
-Ale není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi Sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč. To samo o sobě je velká motivace pro cestu do Japonska. Načerpat tuto energii a napojení, vzít si ji do vlastního srdce a už nikdy nezapomenout.
+Ale není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi Sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč.
 
 Kdo hledá Boha, ať se obrátí do sebe. Ateista je Bůh, který hraje sám se sebou na schovávanou. Já se tedy svým způsobem našel, nebo alespoň na chvíli uviděl, a na ten moment nezapomenu. Nejde se vrátit zpět a za to jsem neskonale rád.
 
