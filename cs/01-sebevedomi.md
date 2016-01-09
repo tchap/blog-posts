@@ -16,8 +16,8 @@ Není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů o
 
 Kdo hledá Boha, ať se obrátí do sebe. Já ho svým způsobem našel, nebo alespoň uviděl.
 
-A neotevírá se nám tu cesta k Shinshin Shingan, tedy očím a srdci boha? Cítím, že není možné vidět pravdu, dokud ji člověk nenajde v sobě. Skrze sebe vede cesta ven do prostoru, k ostatním lidem, k Vesmíru. Kukan, zanshin, mutodori. Netvrdím, že těmto a dalším principům rozumím, ale vnímám je teď nově a jinak. Vždy jde při cvičení o pohyb těla, chceme porozumět, udělat techniku správně. Ale tyto principy v sobě skrývají o tolik víc. Je to krása, vesmírný tanec.
+A neotevírá se nám tu cesta k Shinshin Shingan, tedy očím a srdci boha? Cítím, že není možné vidět pravdu, dokud ji člověk nenajde v sobě. Skrze sebe vede cesta ven do prostoru, k ostatním lidem, k Vesmíru. Kukan, zanshin, mutodori. Netvrdím, že těmto a dalším principům rozumím, ale vnímám je teď nově a jinak. Vždy jde při cvičení o pohyb těla, chceme porozumět, udělat techniku správně. Ale tyto principy v sobě skrývají o tolik víc.
 
+Za vším v Bujinkanu je toho o tolik víc. Vlastně mi tehdy došlo během těch 6 týdnů, že je tam všechno. Je tam celý život.
 
-
-- Soke také svobodný.
+Přeju všem vydařený rok 2016. Přeju všem, aby měli dobré napojení na sebe a byli ve své přirozenosti. V komunikaci jde o slova jen velmi málo. Lepší komunikovat ze srdce do srdce. A třeba i v Japonsku. Třeba není moc důležité poslouchat, co Hatsumi Sensei říka. Někdy stačí zavřít oči a nadechnout se. Někdy stačí lehnout si do trávy a koukat na hvězdy. Někdy je lepší přestat se hádat, přestat mluvit a žít láskou.
