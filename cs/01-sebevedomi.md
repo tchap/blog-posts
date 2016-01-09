@@ -14,7 +14,7 @@ Ale není vlastně právě návrat k vlastní přirozenosti a síle jeden z cíl
 
 Kdo hledá Boha, ať se obrátí do sebe. Ateista je Bůh, který hraje sám se sebou na schovávanou. Já se tedy svým způsobem našel, nebo alespoň uviděl.
 
-A neotevírá se nám tu cesta k Shinshin Shingan, tedy očím a srdci boha? Cítím, že není možné vidět pravdu, dokud ji člověk nenajde v sobě. Skrze sebe vede cesta ven do prostoru, k ostatním lidem, k Vesmíru. Kukan, zanshin, mutodori. Vždy jde při cvičení o pohyb těla, chceme porozumět, udělat techniku správně. Ale tyto principy v sobě skrývají o tolik víc.
+A neotevírá se nám tu cesta k shinshin shingan, tedy očím a srdci boha? Cítím, že není možné vidět pravdu, dokud ji člověk nenajde v sobě. Pravda je to, co prostě je. Skrze sebe vede cesta ven do opravdové čísté reality, prostoru, k ostatním lidem, k Vesmíru, ke konci prebujelé individuality. Kukan, zanshin, mutodori. Při cvičení se snažíme udělat techniku správně. Ale tyto principy v sobě skrývají o tolik víc. Je to napojení, ale ne jen fyzické. Když člověk zná sebe (svého ducha, srdce, nazvěme to jakkoliv) a dokáže rozpustit ego, nechat ho zemřít, potom začne kráčet v pravdě a Vesmír mu bude pomáhat. Člověk se stane Vesmírem a postaví se nad duality. Potom nemůže být poražen, protože ani nikdy nebojuje.
 
 Za vším v Bujinkanu je toho o tolik víc. Vlastně mi tehdy došlo během těch 6 týdnů, že je tam všechno. Je tam celý život.
 
