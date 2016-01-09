@@ -10,9 +10,14 @@ Ten den se ale něco posunulo a navždy změnilo, i když to byla jen třešnič
 
 Pro mě osobně to bylo hodně zásadní uvědomění, protože jsem vždycky měl problém s tím, že jsem dělal, co po mně okolí žádalo, a tím vlastně dusil sám sebe. To teď padlo a já se mohl nadechnout. Je třeba pochopit, že taková změna pak není jen o tréninku. Jde i o vztahy s lidmi, o celkovou vyrovnanost. Pokud se jednou opravdu spojíte se sebou niterně a hluboce, už nemusíte hrát cizí hry, nikdy a nikde v běžném životě. Jste svobodní a chápete vlastní přirozenost a můžete začít žít v souladu se sebou. Nějakým způsobem to pro mě i reprezentuje jistý krok k větší dospělosti.
 
-- Vlastní stabilita, duševní i fyzická a jak to souvisí.
-- Jak to souvisí s pospělostí (mojí vlastní).
-- Kukan, mutodori, zanshin - bez napojení na sebe - prostor - Vesmír těžko. Jen potom může být člověk všechno a nic, tančit v prostoru.
-- Napojeni na sebe a sebevedomi - sebe-vedomi
-- Úkolem je probudit se, najít opět přirozenost a to dávat lidem kolem sebe, protože to dnes hodně chybí.
-- Tohle je vlastně pro mě spiritualita - najít Boha v sobě. Ne o hledání esoterických sil.
+Taková změna jistě není otázkou dne, týdne, měsíce ani jednoho roku. Je to práce dlouhodobá, obzláště pokud je to pro člověka osobní téma. Nešlo ani tak o tento konkrtétní trénink, ale děkuji svému tehdejšímu partnerovi, protože ač zřejmě nevědomky, byl pro mě velkým učitelem.
+
+Není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi Sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč. To samo o sobě je velká motivace do Japonska jet. Načerpat tuto energii a napojení, vzít to vlastního srdce a už nikdy nezapomenout...
+
+Kdo hledá Boha, ať se obrátí do sebe. Já ho svým způsobem našel, nebo alespoň uviděl.
+
+A neotevírá se nám tu cesta k Shinshin Shingan, tedy očím a srdci boha? Cítím, že není možné vidět pravdu, dokud ji člověk nenajde v sobě. Skrze sebe vede cesta ven do prostoru, k ostatním lidem, k Vesmíru. Kukan, zanshin, mutodori. Netvrdím, že těmto a dalším principům rozumím, ale vnímám je teď nově a jinak. Vždy jde při cvičení o pohyb těla, chceme porozumět, udělat techniku správně. Ale tyto principy v sobě skrývají o tolik víc. Je to krása, vesmírný tanec.
+
+
+
+- Soke také svobodný.
