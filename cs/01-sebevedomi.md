@@ -2,7 +2,7 @@
 
 Na jaře 2015 jsem byl v Japonsku na 6 týdnů cvičit tradiční japonská bojová umění u Hatsumi Senseie a jeho nejstarších studentů v Bujinkan Hombu Dojo. Pamatuji si mnoho zajímavých a vnitřně okamžíků. Dnes bych rád na jeden takový okamžik zavzpomínal.
 
-Byl trénink Noguchi Senseie. Jako partnera na trénink jsem si nikoho konkrétního nevybral, někdo na mě prostě zbyl. Po chvilce tréninku mi došlo, že ten den to bude opravdu trénink přežití, protože můj partner své tělo příliš neovládal, zato síly měl na rozdávání, čímž byl nebezpečím jak pro sebe, tak především pro mě. Věřil jsem ale svému tělu, že léta tréninku budou vidět a vyváznu bez zranění. Fyzické omezení je smutná věc, neboť člověk jede do Japonska cvičit, nikoli se léčit.
+Byl trénink Noguchi senseie. Jako partnera na trénink jsem si nikoho konkrétního nevybral, někdo na mě prostě zbyl. Po chvilce tréninku mi došlo, že ten den to bude opravdu trénink přežití, protože můj partner své tělo příliš neovládal, zato síly měl na rozdávání, čímž byl nebezpečím jak pro sebe, tak především pro mě. Věřil jsem ale svému tělu, že léta tréninku budou vidět a vyváznu bez zranění. Fyzické omezení je smutná věc, neboť člověk jede do Japonska cvičit, nikoli se léčit.
 
 Cvičení se silovými, neuvolněnými lidmi pro mě byla vždy výzva. Vlastně bylo téměř pravidlem, že pokud se pral můj partner (hodně silově zápasil), dříve nebo později jsem na tu hru také, byť často nevědomky, přistoupil a používal moc síly a byl sám neuvolněný a na konci tréninku zpocený a zdeptaný, protože praní prostě nikam nevede, kort když jste muší váha jako já. K tomu se ještě nic nenaučítě, protože se ze studia stává prachsprostá rvačka.
 
@@ -12,7 +12,7 @@ Pro mě osobně to bylo hodně zásadní uvědomění, protože jsem vždycky m�
 
 Toho opětovné napojení na své vnitřní Já pro mě i nějakým způsobem reprezentuje jistý krok k větší dospělosti. Zdaleka ale není vyhráno, protože roky žití v nepřirozenosti jen tak nezmizí, je to součást chování, osobnosti.
 
-Ale není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi Sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč.
+Ale není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč.
 
 Kdo hledá Boha, ať se obrátí do sebe. Ateista je Bůh, který hraje sám se sebou na schovávanou. Já se tedy svým způsobem našel, nebo alespoň na chvíli uviděl, a na ten moment nezapomenu. Nejde se vrátit zpět a za to jsem neskonale rád.
 
@@ -20,6 +20,6 @@ Neotevírá se nám tu cesta k shinshin shingan, tedy očím a srdci boha? Cít�
 
 Za vším v Bujinkanu je toho o tolik víc. Vlastně mi tehdy došlo během těch 6 týdnů, že je tam všechno. Je tam celý život.
 
-Přeju všem vydařený rok 2016. Přeju všem, aby měli dobré napojení na sebe a byli ve své přirozenosti. V komunikaci jde o slova jen velmi málo. Lepší komunikovat ze srdce do srdce. Třeba i v Japonsku. Třeba není moc důležité vždy poslouchat, co Hatsumi Sensei říka. Někdy stačí zavřít oči a nadechnout se. Někdy stačí lehnout si do trávy a koukat na hvězdy. Někdy je lepší přestat se hádat, přestat mluvit a žít láskou.
+Přeju všem vydařený rok 2016. Přeju všem, aby měli dobré napojení na sebe a byli ve své přirozenosti. V komunikaci jde o slova jen velmi málo. Lepší komunikovat ze srdce do srdce. Třeba i v Japonsku. Třeba není moc důležité vždy poslouchat, co Hatsumi sensei říka. Někdy stačí zavřít oči a nadechnout se. Někdy stačí lehnout si do trávy a koukat na hvězdy. Někdy je lepší přestat se hádat, přestat mluvit a žít láskou.
 
 Stějně tak nejsou důležitá slova tohoto článku.
