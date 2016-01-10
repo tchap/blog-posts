@@ -10,7 +10,7 @@ Ten den se ale něco posunulo a pro můj trénink navždy změnilo. Pochopil jse
 
 Pro mě osobně to bylo hodně zásadní uvědomění, protože jsem vždycky měl problém s tím, že jsem dělal, co po mně okolí žádalo, a tím vlastně dusil sám sebe. To teď padlo a já se mohl nadechnout. Je třeba pochopit, že taková změna pak není jen o tréninku. Jde i o vztahy s lidmi, o celkovou vyrovnanost. Pokud se jednou opravdu spojíte se sebou niterně a hluboce, už nemusíte hrát cizí hry, nikdy a nikde v životě, pokud se pro to nerozhodnete. Pokud na vás někdo řve, můžete se na něj usmát a nenechat se vyprovokovat. Jste svobodní a chápete vlastní přirozenost a můžete začít žít v souladu se sebou. Najednou vidíte, že šířením negativní energie škodíte hlavně sami sobě. Můžete na lidi řvát, urážet se, ale vás to stojí čas, kdy jste se mohli usmívat.
 
-Toho opětovné nalezení svého [Bytostného Já](https://cs.wikipedia.org/wiki/Bytostn%C3%A9_j%C3%A1) pro mě znamenalo hodně. Dalo by se říci, že jsem tehdy prošel nějakou dílčí iniciací na cestě [individuace](https://cs.wikipedia.org/wiki/Individuace). Cítím se od té doby více dospěle.
+Toho opětovné nalezení svého [Bytostného Já](https://cs.wikipedia.org/wiki/Bytostn%C3%A9_j%C3%A1) pro mě znamenalo hodně. Dalo by se říci, že jsem tehdy prošel nějakou dílčí iniciací na cestě [individuace](https://cs.wikipedia.org/wiki/Individuace). Cítím se od té doby více dospěle. Vykročil jsem ze stínu jiných.
 
 Není vlastně právě návrat k vlastní přirozenosti a síle jeden z cílů osobního či duchovního rozvoje? Nebo alespoň jednou z met na cestě? Ať je to jakkoliv, Hatsumi sensei takovou přirozeností a svobodou opravdu vládne a vysílá ji do prostoru. Proto člověk na jeho tréninku tančí, ani neví proč.
 
