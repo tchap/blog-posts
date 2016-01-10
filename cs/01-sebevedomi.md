@@ -1,6 +1,6 @@
 # Sebevědomí - vědomí sebe samého
 
-Na jaře 2015 jsem byl v Japonsku na 6 týdnů cvičit tradiční japonská bojová umění u Hatsumi senseie a jeho nejstarších studentů v Bujinkan Hombu Dojo. Pamatuji si mnoho zajímavých a vnitřně okamžíků. Dnes bych rád na jeden takový okamžik zavzpomínal.
+Na jaře 2015 jsem byl v Japonsku na 6 týdnů cvičit tradiční japonská bojová umění u Hatsumi senseie a jeho nejstarších studentů v Bujinkan Hombu Dojo. Pamatuji si mnoho zajímavých a vnitřně silných okamžíků. Dnes bych rád na jeden takový okamžik zavzpomínal.
 
 Byl trénink Noguchi senseie. Jako partnera na trénink jsem si nikoho konkrétního nevybral, někdo na mě prostě zbyl. Po chvilce tréninku mi došlo, že ten den to bude opravdu trénink přežití, protože můj partner své tělo příliš neovládal, zato síly měl na rozdávání, čímž byl nebezpečím jak pro sebe, tak především pro mě. Věřil jsem ale svému tělu, že léta tréninku budou vidět a vyváznu bez zranění. Fyzické omezení je smutná věc, neboť člověk jede do Japonska cvičit, nikoli se léčit.
 
